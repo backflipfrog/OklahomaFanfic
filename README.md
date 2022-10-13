@@ -1,1 +1,1 @@
-# OklahomaFanfic short oklahoma fic :)
+short oklahoma fic :)
